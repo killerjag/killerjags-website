@@ -2,8 +2,6 @@
 
 [< Back Home](/)
 
-Give me a call anytime to chat about Tolkien!
+Email: joaopedromf@live.com
 
-`555-555-5555`
-
-**"Váya márië."**
+Linkedin: [João Pedro de Macedo](https://www.linkedin.com/in/jo%C3%A3o-pedro-mf/)
